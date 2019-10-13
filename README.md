@@ -17,6 +17,7 @@ Hoteller i Denver: https://sc19.supercomputing.org/attend/housing/
 
 * Magnolia Hotel Denver, 818 17th St: Niels Carl, Pietro, Ole
 * Grand Hyatt Denver, 1750 Welton St: Jannick, Nicolai, Erik
+* The Curtis Hotel - A Doubletree Hotel: Hans Henrik
 
 
 Husk at checke eller forny jeres ESTA ansøgning senest 72 timer før afrejse: https://esta.cbp.dhs.gov/esta/
